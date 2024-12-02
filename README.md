@@ -6,7 +6,7 @@ I am now taking a pivotal step to transform this passion into a professional pat
 
 Motivated and determined, I am ready to embrace challenges and make a meaningful contribution to the success of my future team.
 
-![alt text](https://files.oaiusercontent.com/file-DWHyjP4T2f2f515E7badxQ?se=2024-11-29T11%3A43%3A03Z&sp=r&sv=2024-08-04&sr=b&rscc=max-age%3D604800%2C%20immutable%2C%20private&rscd=attachment%3B%20filename%3D9681d6b0-eb3b-43ba-a4e3-ad4718c20b81.webp&sig=TfYkEL7%2B%2Bj7AuTIJQvCsnBGkIX1UQrYvxctKBB5dXeQ%3D)
+![alt text](https://i.postimg.cc/26m0xS5m/5f6d87ab-8ffb-46cd-9e72-9fe9b91c839e.jpg)
 
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/rafaelskd) 
