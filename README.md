@@ -2,7 +2,7 @@
 
 # 🔧 From Automotive Mechanics to the World of Code 💻
 
-<img src="https://i.postimg.cc/26m0xS5m/5f6d87ab-8ffb-46cd-9e72-9fe9b91c839e.jpg" alt="Profile image" />
+<img src="https://i.imgur.com/gHNufuN.png" alt="Profile image" />
 
 </div>
 
